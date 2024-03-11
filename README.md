@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Hamsteroonie
+- 👀 I’m interested in Minecraft modding/development, indie game development, and graphics programming
+- 🌱 I’m currently learning Java, Android app development, and about 20 other random things in my open tabs
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: no thanks
+- 😄 Pronouns: any
+- ⚡ Fun fact: im not fun
